@@ -1,0 +1,2 @@
+# takipciyurdu.com
+takipciyurdu.com
